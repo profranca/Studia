@@ -1,0 +1,2 @@
+# Studia
+No studia ewidentnie 
